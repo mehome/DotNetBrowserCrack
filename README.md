@@ -1,3 +1,5 @@
+新版好像不行了！！！！！！！！！！！！！！！！！！！！！
+
 # DotNetBrowserCrack
  DotNetBrowser破解
 
